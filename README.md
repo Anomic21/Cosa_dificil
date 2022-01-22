@@ -1,2 +1,2 @@
-# Cosa_dificil
-adpijasjipdjop+saojpdjpoiwajop+sjopdjoiwihpaiphsdihwihy0a+'uhsdhi´wugagu´sdgu0
+# C35_Pelota con movimiento sincrónico
+Actividad del alumno 1
